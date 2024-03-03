@@ -1,1 +1,1 @@
-# bangladesh
+# free for everyone
